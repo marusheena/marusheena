@@ -1,6 +1,6 @@
 # Hola, soy Maruxa
 
-**Product Designer & Builder**
+**Product Manager, Product Designer & Builder**
 
 Aporto mi experiencia en datos, diseño y negocio, y me apoyo en la IA en cada fase del proyecto, revisando con criterio cada output.
 
